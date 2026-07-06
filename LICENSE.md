@@ -1,4 +1,4 @@
-# 
+# Professional 1inch trading bot extensions for Mac OS | VIP 1inch trading bot extensions for PC Windows. Featuring centralized exchange api and dex liquidity pools — optimized for maximum performance.
 
 
 
